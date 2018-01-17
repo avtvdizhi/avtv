@@ -4,7 +4,9 @@ AVTV影视网最新地址
 
 最新地址二：http://avtv002.pw
 
-永久地址：http://avtv001.com (请使用代理访问)
+最新地址二：http://avtv003.pw
+
+海外,代理用户请使用永久地址：http://avtv001.pw
 
 发任意邮件到 avtvdizhi@usa.com 即可获得AVTV最新地址
 
